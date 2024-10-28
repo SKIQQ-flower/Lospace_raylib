@@ -1,0 +1,1 @@
+Please open with Obsidian! :3
